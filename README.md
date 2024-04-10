@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-This SERVICE is provided by EBLI and is intended for use as is.
+This SERVICE is provided by Alvaro Garcia and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
